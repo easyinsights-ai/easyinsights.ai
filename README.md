@@ -1,1 +1,1 @@
-# easyinsights.ai
+# https://easyinsights.ai
